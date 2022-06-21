@@ -1,0 +1,2 @@
+# yetiz
+Advertise for trash
